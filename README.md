@@ -5,4 +5,4 @@ Group 15 is carrying out the project with the following members and their respec
 - Sandra - sandra3419  
 - Alabi Emmanuel - Manlikesoft  
 - Tolu Olisa - TheOlisa  
-- Moji Popoola - Jendalady  
+- Moji Popoola - Jengalady  
